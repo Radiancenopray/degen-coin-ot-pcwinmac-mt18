@@ -1,4 +1,4 @@
-# 
+# حصرية degen coin sniper bot امتدادات لـ Mac OS | جديد degen coin sniper bot امتدادات لـ PC Windows. مع تنفيذ الحزم و التحكم في الانزلاق — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
